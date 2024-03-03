@@ -13,7 +13,7 @@
 
 -     5 FREE website template included
 -     Setup and 24/7 Support
--     Multichain Solana drainer
+-     Multichain Eth drainer
 -     Upto 18 network chains in one drainer 
 -     Contact me on telegram for purchase
 
