@@ -4,7 +4,7 @@
 ## 🪐 Contact (Telegram): [@Impact](https://t.me/gem_nft_wallet_drainer)
 
 
-### 🛍 Multichain Price: $750 🏷️ (Full source code) 🛍
+### 🛍 Multichain Price: $2000 🏷️ (Full source code) 🛍
 
 ### 💣 CONTACT [@impact](https://t.me/gem_nft_wallet_drainer)
 
